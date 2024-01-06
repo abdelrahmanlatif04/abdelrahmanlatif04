@@ -17,8 +17,5 @@ Connect with me on social media:
 - [LinkedIn](https://www.linkedin.com/in/abdelrahmanlatif/)
 - [Twiiter](https://twitter.com/abdellatiif04)
 
-## Support
-
-If you find it helpful or interesting, consider buying me a coffee ☕
 
 Thank you for stopping by! 😊
