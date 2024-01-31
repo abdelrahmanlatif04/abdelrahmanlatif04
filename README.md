@@ -4,7 +4,7 @@
 
 ## About Me
 
-I'm passionate about technology and love to explore new possibilities through coding. My main areas of interest include [insert your main interests, e.g., web development, machine learning, etc.]. I believe in the power of collaboration and open source, and I'm always excited to learn and share knowledge with the community.
+I'm passionate about technology and love to explore new possibilities through coding. My main areas of interest include web development, machine learning, and so on I believe in the power of collaboration and open source, and I'm always excited to learn and share knowledge with the community.
 
 ## Get in Touch
 
