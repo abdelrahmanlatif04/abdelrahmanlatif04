@@ -15,7 +15,7 @@ I'm always open to new opportunities, collaborations, and discussions. Feel free
 Connect with me on social media:
 - [Facebook](https://www.facebook.com/profile.php?id=100003984241851&mibextid=ZbWKwL)
 - [LinkedIn](https://www.linkedin.com/in/abdelrahmanlatif/)
-- [Twiiter](https://twitter.com/abdellatiif04)
+- [Twiiter](https://twitter.com/3bdellatiif)
 
 
 Thank you for stopping by! 😊
